@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am studying  ay Halic University<br>I am a software engineering student and <br>I have been interested in software for 7 years.
+I am studying  ay Halic University<br>I am a software engineering student and <br>I have been interested in software for 9 years.
 
 
 ## 🌐 Socials:
